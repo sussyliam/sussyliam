@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @sussyliam
+- 👀 I’m interested in women
+- 🌱 I’m currently gay
+- 💞️ I’m looking to collaborate with your mom
+- 📫 How to reach me NA
+- 😄 Pronouns: it that
+- ⚡ Fun fact: in not gay
